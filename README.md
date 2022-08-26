@@ -1,1 +1,1 @@
-Arowolo Gideon is my name.
+Arowolo Gideon is my full name.
